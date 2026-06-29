@@ -1,4 +1,4 @@
-#  
+#  evade Script secure is the best evade Script, featuring no cooldown and one-hit kill. Safe and powerful for all your needs.
 
 
 
